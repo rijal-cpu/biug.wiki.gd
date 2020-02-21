@@ -1,1 +1,0 @@
-# biug.wiki.gd
